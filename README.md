@@ -5,7 +5,7 @@ rentryㅤ.ㅤatabookㅤ.ㅤstrawpage
 
 pronouns pageㅤ.ㅤguns.lolㅤ.ㅤtree
 
-![](https://i.postimg.cc/Ss3HS83Z/Untitled281-20260514135816.png)
+![](https://i.postimg.cc/9fQCndyw/Untitled173-20260514141204.png)
 
 
 ![](https://i.postimg.cc/brz8c1t6/Untitled279-20260514140410.png)

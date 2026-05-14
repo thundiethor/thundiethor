@@ -1,11 +1,12 @@
-![](https://i.postimg.cc/bNJ2cn81/Untitled276.png)
+![](https://i.postimg.cc/JzdhNYk8/Untitled279-20260514140414.png)
 
 
 rentryㅤ.ㅤatabookㅤ.ㅤstrawpage
 
 pronouns pageㅤ.ㅤguns.lolㅤ.ㅤtree
 
-![](https://i.postimg.cc/xTxMcRtS/Untitled279-20260514135920.png)
+
+![](https://i.postimg.cc/brz8c1t6/Untitled279-20260514140410.png)
 <!--
 **thundiethor/thundiethor** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

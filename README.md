@@ -1,3 +1,6 @@
+wip
+![](https://i.postimg.cc/ncQcJb8z/ezgif-3055d6c73253feae-(1).gif) 
+
 
 ✦     [rentry](https://rentry.co/loveandthunder)ㅤ.ㅤ[atabook](https://thor.atabook.org/)ㅤ.ㅤ[strawpage](straw.page/thortism)
 

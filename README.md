@@ -13,7 +13,6 @@
             <img src="https://i.postimg.cc/ncQcJb8z/ezgif-3055d6c73253feae-(1).gif" width="200">
          </td>
          <td width="40%" align="center" valign="middle">
+wip wip wip wip wip wip wip<br>
 wip <br>
 wip <br>
-wip <br>
-<details>

@@ -1,6 +1,6 @@
 <div align="center">
-   <img src="https://komarev.com/ghpvc/?username=NAME&style=flat-square&color=c9c9d1&label=SYMBOL">
-   <img src="https://komarev.com/ghpvc/?username=NAME&style=flat-square&color=c9c9d1&label=SYMBOL">
+   <img src="https://komarev.com/ghpvc/?username=NAME&style=flat-square&color=d290c5&label=SYMBOL">
+   <img src="https://komarev.com/ghpvc/?username=NAME&style=flat-square&color=d290c5&label=SYMBOL">
 </div>
 <tr>
 <td width="65%" align="center" valign="middle">
@@ -16,3 +16,10 @@
 TXT TXT TXT TXT TXT TXT TXT txt txt txt txt <br>
 TXT TXT TXT TXT TXT TXT TXT txt txt txt txt <br>
 TXT TXT TXT TXT TXT TXT TXT txt txt txt txt <br>
+<details>
+<summary> TEXTO
+<br> 
+</details>
+</td>
+</tr>
+</table>

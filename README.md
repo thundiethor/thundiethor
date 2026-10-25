@@ -6,7 +6,7 @@
 <td width="65%" align="center" valign="middle">
 
 
-<table align="center">
+<table align="left">
    <tbody>
       <tr>
          <td width="65%" align="center" valign="middle">

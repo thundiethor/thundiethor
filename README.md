@@ -9,19 +9,18 @@
 
 <img src="https://komarev.com/ghpvc/?username=NAME&style=flat-square&color=d290c5&label=SYMBOL">
             
-⠀⠀ ༷  ◜ ͡    ִ　　𝓽hor⠀ ₒᵣ⠀ donnie 　
-𓈒 ⠀transfem ,　butch bear　lesb　.　 mexican 　
- ︵ 　spa　/　eng　        ִ⑅  ˚　bad　english<br>
-            
-
-<br>
-            
-⠀ ͜𓈒 ࣪♫ྀི𓏼 ⠀ bpd　prince　, 　
-autistic ⠀adhd 　mentally unstable　　and　　taken 　<br>
+⠀𝓽hor　　ₒᵣ　　 𝕯onnie𓈒
+⠀𝓼he　/　he𝑟　 ִ⑅  ˚　<ins>mtf</ins>　
+𓈒 ࣪ ♫ྀི𓏼　**butch**~~bear~~　lesb
 
 
-<sub> ㅤ新[book]()ㅤㅤㅤ𝓼[traw]()ㅤㅤㅤ𝓻[entry]()</sub>
-<sub> ㅤ𝓹[rns.cc]()ㅤㅤㅤ[wip]()ㅤㅤㅤ[wip]()</sub>
+<sub> ㅤ新[book]()ㅤㅤㅤ𝓼[traw]()</sub>
+
+<sub> ㅤ𝓻[entry]()ㅤㅤㅤ𝓹[rns.cc]()</sub>
+
+
+𓐇ׁ⑅　𝓶<ins>ental</ins>ly　**unstable**
+**bpd** *prince*　𓏫　au~~tist~~ic
 
 
 <details>

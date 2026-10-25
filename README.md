@@ -21,4 +21,4 @@
 <br>
             
 ⠀ ͜𓈒 ࣪♫ྀི𓏼 ⠀ bpd　prince　, 　
-autistic ⠀adhd 　mentally unstable　　and　 taken 　<br>
+autistic ⠀adhd 　mentally unstable　　and　　taken 　<br>

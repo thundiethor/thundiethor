@@ -16,7 +16,7 @@
 
 <sub> ㅤ新[book](https://thor.atabook.org/)ㅤㅤㅤ𝓼[traw](htts://thortism.straw.page)</sub>
 
-<sub> ㅤ𝓻[entry](https://rentry.co/themightythor)ㅤㅤㅤ𝓹[rns.cc]()</sub>
+<sub> ㅤ𝓻[entry](https://rentry.co/themightythor)ㅤㅤㅤ𝓹[rns.cc](https://pronouns.cc/@themightythor)</sub>
 
 
 𓐇ׁ⑅　𝓶<ins>ental</ins>ly　**unstable**

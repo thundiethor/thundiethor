@@ -11,7 +11,7 @@
             
 ⠀𝓽hor　　ₒᵣ　　 𝕯onnie𓈒
 ⠀𝓼he　/　he𝑟　 ִ⑅  ˚　<ins>mtf</ins>　
-𓈒 ࣪ ♫ྀི𓏼　**butch**~~bear~~　lesb
+ ࣪ ♫ྀི𓏼　**butch**~~bear~~　lesb
 
 
 <sub> ㅤ新[book]()ㅤㅤㅤ𝓼[traw]()</sub>

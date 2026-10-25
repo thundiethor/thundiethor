@@ -1,4 +1,5 @@
-<table>
+<div align="center">
+   <table>
    <tbody>
       <tr>
          <td width="65%" align="center" valign="middle">
@@ -32,3 +33,8 @@ text
 text
 
 </details>
+</td>
+</tr>
+</table>
+
+</div>

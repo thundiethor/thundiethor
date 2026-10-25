@@ -7,7 +7,7 @@
          </td>
          <td width="20%" align="center" valign="middle">
 
-<img src="https://komarev.com/ghpvc/?username=NAME&style=flat-square&color=d290c5&label=ASGARDS MIGHT">
+<img src="https://komarev.com/ghpvc/?username=NAME&style=flat-square&color=d290c5&label=THUNDERS">
             
 ⠀𝓽hor　　ₒᵣ　　 𝕯onnie𓈒
 ⠀𝓼he　/　he𝑟　 ִ⑅  ˚　<ins>mtf</ins>　

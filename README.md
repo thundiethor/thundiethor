@@ -16,5 +16,9 @@
 ⠀⠀ ༷  ◜ ͡    ִ　　thor　donnie　thunder 　
 𓈒 ⠀transfem ,　butch bear　lesb　.　 mexican 　
  ︵ 　spa　/　eng　        ִ⑅  ˚　bad　english<br>
-wip <br>
-wip <br>
+            
+
+<br>
+            
+⠀ ͜𓈒 ࣪♫ྀི𓏼 ⠀ bpd　prince　, 　
+autistic ⠀adhd 　mentally unstable　　and　 taken 　<br>

@@ -1,7 +1,7 @@
-<table align="center">
+<table>
    <tbody>
       <tr>
-         <td width="65%" align="right" valign="middle">
+         <td width="65%" align="center" valign="middle">
             <img src="https://i.postimg.cc/ncQcJb8z/ezgif-3055d6c73253feae-(1).gif" width="300">
          </td>
          <td width="20%" align="center" valign="middle">

@@ -9,7 +9,7 @@
 
 <img src="https://komarev.com/ghpvc/?username=NAME&style=flat-square&color=d290c5&label=SYMBOL">
             
-⠀⠀ ༷  ◜ ͡    ִ　　$\color{#dd92c2}{\textsf{𝓽hor}}$　donnie　thunder 　
+⠀⠀ ༷  ◜ ͡    ִ　　𝓽hor⠀ ₒᵣ⠀ donnie 　
 𓈒 ⠀transfem ,　butch bear　lesb　.　 mexican 　
  ︵ 　spa　/　eng　        ִ⑅  ˚　bad　english<br>
             

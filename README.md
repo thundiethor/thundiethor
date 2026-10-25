@@ -20,9 +20,8 @@
 autistic ⠀adhd 　mentally unstable　　and　　taken 　<br>
 
 
-<sub> ㅤ[新book]()ㅤㅤㅤ[straw]()ㅤㅤㅤ[rentry]()</sub>
-
-<sub> ㅤ[prns.cc]()ㅤㅤㅤ[wip]()ㅤㅤㅤ[wip]()</sub>
+<sub> ㅤ新[book]()ㅤㅤㅤ𝓼[traw]()ㅤㅤㅤ𝓻[entry]()</sub>
+<sub> ㅤ𝓹[rns.cc]()ㅤㅤㅤ[wip]()ㅤㅤㅤ[wip]()</sub>
 
 
 <details>

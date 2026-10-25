@@ -14,7 +14,7 @@
  ࣪ ♫ྀི𓏼　**butch**~~bear~~　lesb
 
 
-<sub> ㅤ新[book](https://thor.atabook.org/)ㅤㅤㅤ𝓼[traw](htts://thortism.straw.page)</sub>
+<sub> ㅤ新[book](https://thor.atabook.org/)ㅤㅤㅤ𝓼[traw](thortism.straw.page)</sub>
 
 <sub> ㅤ𝓻[entry](https://rentry.co/themightythor)ㅤㅤㅤ𝓹[rns.cc](https://pronouns.cc/@themightythor)</sub>
 

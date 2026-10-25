@@ -26,9 +26,7 @@
 <details>
 <summary>PT INFO</summary>
 
-text
-text
-text
+semi⠀offtab⠀most⠀the⠀time⠀!⠀w2i<br>
 
 </details>
 </td>

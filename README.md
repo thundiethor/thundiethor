@@ -7,7 +7,7 @@
          </td>
          <td width="20%" align="center" valign="middle">
 
-<img src="https://komarev.com/ghpvc/?username=NAME&style=flat-square&color=d290c5&label=SYMBOL">
+<img src="https://komarev.com/ghpvc/?username=NAME&style=flat-square&color=d290c5&label=ASGARDS MIGHT">
             
 ⠀𝓽hor　　ₒᵣ　　 𝕯onnie𓈒
 ⠀𝓼he　/　he𝑟　 ִ⑅  ˚　<ins>mtf</ins>　
@@ -26,8 +26,11 @@
 <details>
 <summary>PT INFO</summary>
 
-semi⠀offtab⠀most⠀the⠀time⠀!⠀w2i<br>
-
+semi⠀offtab⠀most⠀the⠀time⠀!⠀w2i⠀,⠀alwayls⠀c+h<br>
+i⠀LOVELOVELOVE⠀making⠀new⠀friends⠀!⠀although⠀im⠀very⠀awkward⠀sometimes⠀sorry,,<br>
+thor⠀fictkin⠀,⠀so⠀doubles⠀yumes⠀cosplayers⠀etc⠀dni⠀also⠀not⠀ship⠀int⠀with⠀me<br>
+LOKI⠀DOUBLES⠀DNI⠀I⠀already⠀have⠀my⠀loki<br>
+usually⠀marvel⠀area⠀or⠀just⠀with⠀my⠀partner<br>
 </details>
 </td>
 </tr>

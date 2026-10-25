@@ -6,7 +6,7 @@
 <td width="65%" align="center" valign="middle">
 
 
-<table align="left">
+<table align="center">
    <tbody>
       <tr>
          <td width="65%" align="center" valign="middle">
@@ -26,6 +26,7 @@ autistic ⠀adhd 　mentally unstable　　and　　taken 　<br>
 
 <sub> ㅤ[新book]()ㅤㅤㅤ[straw]()ㅤㅤㅤ[rentry]()</sub>
 
+<sub> ㅤ[prns.cc]()ㅤㅤㅤ[wip]()ㅤㅤㅤ[wip]()</sub>
 
 
 <details>

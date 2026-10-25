@@ -22,3 +22,17 @@
             
 ⠀ ͜𓈒 ࣪♫ྀི𓏼 ⠀ bpd　prince　, 　
 autistic ⠀adhd 　mentally unstable　　and　　taken 　<br>
+
+
+<sub> ㅤ[新book]()ㅤㅤㅤ[straw]()ㅤㅤㅤ[rentry]()</sub>
+
+
+
+<details>
+<summary>PT INFO</summary>
+
+text
+text
+text
+
+</details>
